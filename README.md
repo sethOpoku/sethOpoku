@@ -50,6 +50,15 @@ Dr Opoku is a registered member of the Southern African Institute of Mining and 
 -	Interacts with Regional Governmental/Regulatory/Agency officials; and
 -	Maintains relationship with local Traditional Leaders and community decision makers. 
 
+###  Chief Mining Engineer, Adamus Resources Limited       - 06/2018 - 06/2019
+#### Key Responsibilities:
+-	Preparation of annual business plan;
+-	Pit optimisation and pit shell selection;
+-	Pit designs;
+-	Waste dump designs;
+-	Reserves estimation; and
+-	Mine scheduling and budgeting.
+
 
 
 <!---
