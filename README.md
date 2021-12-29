@@ -11,7 +11,7 @@ Dr Opoku is a registered member of the Southern African Institute of Mining and 
 
 ##  Experience
 
-### Director of Operations- PROMITHIAN GLOBAL VENTURES, INC     08/2021 – TO DATE 
+### Director of Operations- PROMITHIAN GLOBAL VENTURES, INC     -08/2021 – TO DATE 
 #### Key Responsibilities: <br/>
 -	Responsible for all Safety and Environmental performance;
 -	Responsible for the appointment and replacement of senior officers.
@@ -28,6 +28,27 @@ Dr Opoku is a registered member of the Southern African Institute of Mining and 
 -	Responsible for ensuring appropriate standards of corporate conduct including adopting a corporate code of conduct for all employees and senior management
 -	Responsible for performing such other functions as prescribed by law.
 
+ 
+### General Manager, Adamus Resources Limited – AG     - 11/2019 - 11/2020
+#### Key Responsibilities:
+-	Responsible for all Safety and Environmental performance;
+-	Responsible for all areas of operation, health, safety, security, environmental, social and community relations within the operating area;
+-	Responsible for all financial aspects of the business;
+-	Manage personnel on site;
+-	Responsible for ensuring that necessary new systems and processes are put into place across the project and teams to ensure the success and profitability of the business unit;
+-	Direct and control the activities for all operating and service departments at a mine;
+-	Ensures the integration of the different operating areas through coordinating their efforts to enable the entire process to operate;
+-	Monitors staffing and costs for all operating and support services departments.
+-	Approves the mine site business plans and operating budgets;
+-	Evaluate and approve the budgets and medium-term and long-term targets (Production, Training, Loss Prevention, Environment, and others);
+-	Interacts with senior site managers and general superintendents to develop long-term operating goals and budgets;
+-	Responsible for development, coaching and mentoring of key senior staff (National and Expat);
+-	Ensures that the sites comply with all regulations, company policies and procedures, and the Company's environmental compliance policy;
+-	Promote social responsibility inside and outside the company;
+-	Communicate the company and corporation policies and strategies in all the areas, and coordinate the efforts to improve and maintain the company’s image.
+-	Responsible for strategic mine site (asset) optimization and resource development;
+-	Interacts with Regional Governmental/Regulatory/Agency officials; and
+-	Maintains relationship with local Traditional Leaders and community decision makers. 
 
 
 
