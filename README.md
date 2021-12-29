@@ -13,9 +13,9 @@ Dr Opoku is a registered member of the Southern African Institute of Mining and 
 
 ### Director of Operations- PROMITHIAN GLOBAL VENTURES, INC     08/2021 – TO DATE 
 #### Key Responsibilities: <br/>
-•	Responsible for all Safety and Environmental performance;
-•	Responsible for the appointment and replacement of senior officers.
-•	Ensure that appropriate succession planning, including the appointment, training and monitoring of senior management
+-	Responsible for all Safety and Environmental performance;
+-	Responsible for the appointment and replacement of senior officers.
+-	Ensure that appropriate succession planning, including the appointment, training and monitoring of senior management
 
 
 
