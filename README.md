@@ -87,6 +87,17 @@ Dr Opoku is a registered member of the Southern African Institute of Mining and 
 -	Owner versus Contractor mining studies and Bulk versus Selective mining studies.
 -	Tender evaluations and due diligence studies and Mine Audits and technical evaluations.
 
+## Education and Training
+### PhD, Mining Engineering- University of the Witwatersrand - 2013
+    
+### MSc Mining Engineering- University of Science and Technology  -2007
+
+### BSc Geodetic Engineering- University of Science and Technology  -1991 
+
+## Activities and Honors
+- Southern Africa Institute of Mining and Metallurgy-SAIMM) 705001 
+- Australian Institute of Mining and Metallurgy-AusIMM-304187
+
 
 <!---
 sethOpoku/sethOpoku is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
