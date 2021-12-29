@@ -50,6 +50,20 @@ Dr Opoku is a registered member of the Southern African Institute of Mining and 
 -	Interacts with Regional Governmental/Regulatory/Agency officials; and
 -	Maintains relationship with local Traditional Leaders and community decision makers. 
 
+### Mine Manager, Adamus Resources Limited   - 07/2019 - 11/2020
+
+#### Key Responsibilities:
+-	Supervises operations at a mine to keep them efficient and safe;
+-	Accountable for incidents at the mine, and responsible for the overall safety of the Mining department;
+-	Responsible for the overall management of mining projects;
+-	Assists in staffing, outlining project plans, setting project goals/deadlines, and evaluating performance;
+-	Ensures the safety and health of mine workers;
+-	Recommends corrective action when problems are detected;
+-	Manages through subordinate managers and professionals in larger groups of moderate complexity;
+-	Provides input to strategic decisions that affect the functional area of responsibility;
+-	Give input into developing annual budget; and
+-	Capable of resolving escalated issues arising from operations and requiring coordination with other departments.
+
 ###  Chief Mining Engineer, Adamus Resources Limited      - 06/2018 - 06/2019
 #### Key Responsibilities:
 -	Preparation of annual business plan;
