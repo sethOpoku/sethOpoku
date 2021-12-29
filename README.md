@@ -88,11 +88,11 @@ Dr Opoku is a registered member of the Southern African Institute of Mining and 
 -	Tender evaluations and due diligence studies and Mine Audits and technical evaluations.
 
 ## Education and Training
-### PhD, Mining Engineering- University of the Witwatersrand - 2013
+- PhD, Mining Engineering- University of the Witwatersrand - 2013
     
-### MSc Mining Engineering- University of Science and Technology  -2007
+- MSc Mining Engineering- University of Science and Technology  -2007
 
-### BSc Geodetic Engineering- University of Science and Technology  -1991 
+- BSc Geodetic Engineering- University of Science and Technology  -1991 
 
 ## Activities and Honors
 - Southern Africa Institute of Mining and Metallurgy-SAIMM) 705001 
