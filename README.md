@@ -32,36 +32,36 @@ Dr Opoku is a registered member of the Southern African Institute of Mining and 
 ### General Manager, Adamus Resources Limited – AG     - 11/2019 - 11/2020
 #### Key Responsibilities:
 -	Responsible for all Safety and Environmental performance;
--	Responsible for all areas of operation, health, safety, security, environmental, social and community relations within the operating area;
--	Responsible for all financial aspects of the business;
--	Manage personnel on site;
--	Responsible for ensuring that necessary new systems and processes are put into place across the project and teams to ensure the success and profitability of the business unit;
--	Direct and control the activities for all operating and service departments at a mine;
--	Ensures the integration of the different operating areas through coordinating their efforts to enable the entire process to operate;
+-	Responsible for all areas of operation, health, safety, security, environmental, social and community relations within the operating area.
+-	Responsible for all financial aspects of the business.
+-	Manage personnel on site.
+-	Responsible for ensuring that necessary new systems and processes are put into place across the project and teams to ensure the success and profitability of the business unit.
+-	Direct and control the activities for all operating and service departments at a mine.
+-	Ensures the integration of the different operating areas through coordinating their efforts to enable the entire process to operate.
 -	Monitors staffing and costs for all operating and support services departments.
--	Approves the mine site business plans and operating budgets;
--	Evaluate and approve the budgets and medium-term and long-term targets (Production, Training, Loss Prevention, Environment, and others);
--	Interacts with senior site managers and general superintendents to develop long-term operating goals and budgets;
--	Responsible for development, coaching and mentoring of key senior staff (National and Expat);
--	Ensures that the sites comply with all regulations, company policies and procedures, and the Company's environmental compliance policy;
--	Promote social responsibility inside and outside the company;
+-	Approves the mine site business plans and operating budgets.
+-	Evaluate and approve the budgets and medium-term and long-term targets (Production, Training, Loss Prevention, Environment, and others).
+-	Interacts with senior site managers and general superintendents to develop long-term operating goals and budgets.
+-	Responsible for development, coaching and mentoring of key senior staff (National and Expat).
+-	Ensures that the sites comply with all regulations, company policies and procedures, and the Company's environmental compliance policy.
+-	Promote social responsibility inside and outside the company.
 -	Communicate the company and corporation policies and strategies in all the areas, and coordinate the efforts to improve and maintain the company’s image.
--	Responsible for strategic mine site (asset) optimization and resource development;
+-	Responsible for strategic mine site (asset) optimization and resource development.
 -	Interacts with Regional Governmental/Regulatory/Agency officials; and
 -	Maintains relationship with local Traditional Leaders and community decision makers. 
 
 ### Mine Manager, Adamus Resources Limited   - 07/2019 - 11/2020
 
 #### Key Responsibilities:
--	Supervises operations at a mine to keep them efficient and safe;
--	Accountable for incidents at the mine, and responsible for the overall safety of the Mining department;
--	Responsible for the overall management of mining projects;
--	Assists in staffing, outlining project plans, setting project goals/deadlines, and evaluating performance;
--	Ensures the safety and health of mine workers;
--	Recommends corrective action when problems are detected;
--	Manages through subordinate managers and professionals in larger groups of moderate complexity;
--	Provides input to strategic decisions that affect the functional area of responsibility;
--	Give input into developing annual budget; and
+-	Supervises operations at a mine to keep them efficient and safe.
+-	Accountable for incidents at the mine, and responsible for the overall safety of the Mining department
+-	Responsible for the overall management of mining projects
+-	Assists in staffing, outlining project plans, setting project goals/deadlines, and evaluating performance
+-	Ensures the safety and health of mine workers
+-	Recommends corrective action when problems are detected
+-	Manages through subordinate managers and professionals in larger groups of moderate complexity
+-	Provides input to strategic decisions that affect the functional area of responsibility
+-	Give input into developing annual budget.
 -	Capable of resolving escalated issues arising from operations and requiring coordination with other departments.
 
 ###  Chief Mining Engineer, Adamus Resources Limited      - 06/2018 - 06/2019
@@ -73,6 +73,19 @@ Dr Opoku is a registered member of the Southern African Institute of Mining and 
 -	Reserves estimation; and
 -	Mine scheduling and budgeting.
 
+###  Senior Mining Engineer, AngloGold Ashanti Limited - 09/2009 - 12/2016
+### Key Responsibilities:
+-	Preparation of annual company planning guidelines and business plan.
+-	Pit optimisation and pit shell selection.
+-	Waste dump designs.
+-	Reserves estimation.
+-	Mine scheduling and budget Key Achievements.
+-	Pit designs and evaluations for the various open pits within the mine.
+-	Mine Planning Reserve modelling.
+-	Pit designs and Production Scheduling.
+- Equipment studies.
+-	Owner versus Contractor mining studies and Bulk versus Selective mining studies.
+-	Tender evaluations and due diligence studies and Mine Audits and technical evaluations.
 
 
 <!---
