@@ -11,7 +11,7 @@ Dr Opoku is a registered member of the Southern African Institute of Mining and 
 
 ##  Experience
 
-### Director of Operations- PROMITHIAN GLOBAL VENTURES, INC     -08/2021 – TO DATE 
+### Director of Operations- PROMITHIAN GLOBAL VENTURES, INC   - 08/2021 – TO DATE 
 #### Key Responsibilities: <br/>
 -	Responsible for all Safety and Environmental performance;
 -	Responsible for the appointment and replacement of senior officers.
@@ -50,7 +50,7 @@ Dr Opoku is a registered member of the Southern African Institute of Mining and 
 -	Interacts with Regional Governmental/Regulatory/Agency officials; and
 -	Maintains relationship with local Traditional Leaders and community decision makers. 
 
-###  Chief Mining Engineer, Adamus Resources Limited       - 06/2018 - 06/2019
+###  Chief Mining Engineer, Adamus Resources Limited      - 06/2018 - 06/2019
 #### Key Responsibilities:
 -	Preparation of annual business plan;
 -	Pit optimisation and pit shell selection;
