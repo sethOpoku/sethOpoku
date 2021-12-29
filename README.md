@@ -10,6 +10,8 @@ He has worked in various mines and countries across the globe, notably among the
 Dr Opoku is a registered member of the Southern African Institute of Mining and Metallurgy, and a member of the Australian Institute of Mining and Metallurgy (AusIMM). His research areas are open pit to underground transition, stochastic modelling and the use of simulated models in mine planning, uncertainties in mine planning and mine closure and rehabilitation.
 
 ###  Experience
+## Director of Operations- PROMITHIAN GLOBAL VENTURES, INC     08/2021 – TO DATE 
+
 
 <!---
 sethOpoku/sethOpoku is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
