@@ -16,6 +16,18 @@ Dr Opoku is a registered member of the Southern African Institute of Mining and 
 -	Responsible for all Safety and Environmental performance;
 -	Responsible for the appointment and replacement of senior officers.
 -	Ensure that appropriate succession planning, including the appointment, training and monitoring of senior management
+-	Create a culture of integrity throughout the Corporation
+- Responsible for reviewing the financial and underlying operational performance of the Corporation.
+- Review and approve annual financial statements, management's discussion and analysis related to such annual financial statements, budgets and forecasts, and the Corporation’s  annual information form, management information circular and annual report.
+-	Monitor and ensure the integrity of the internal controls and procedures (including adequate management information systems) within the Corporation and the financial reporting procedures of the Corporation. 
+-	Responsible for establishing and reviewing from time to time a dividend policy for the Corporation.
+-	Contribute to the development of strategic direction 
+-	Review with management from time to time the strategic planning environment, monitor corporate performance against the strategic and business plan and budget 
+-	Communications and Reporting to Shareholders
+-	Responsible for evaluating the relevant relationships of each independent director 
+-	Responsible for ensuring appropriate standards of corporate conduct including adopting a corporate code of conduct for all employees and senior management
+-	Responsible for performing such other functions as prescribed by law.
+
 
 
 
