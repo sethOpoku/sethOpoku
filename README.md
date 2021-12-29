@@ -1,4 +1,4 @@
-<h1 align="center">Hi, I’m Dr. Seth Opoku</h1>
+<h1 align="center">Resume of Dr. Seth Opoku</h1>
 
 ##  Summary
 
