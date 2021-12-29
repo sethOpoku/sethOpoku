@@ -1,6 +1,6 @@
 <h1 align="center">Hi, I’m Dr. Seth Opoku</h1>
 
-###  Summary
+##  Summary
 
 Dr Seth Opoku is a holder of PhD in Mining Engineering from University of the Witwatersrand, Johannesburg, South Africa and MSc in Mining Engineering, a Bachelor of Science (Honours) in Geodetic Engineering from Kwame Nkrumah University of Science and Technology (KNUST), Kumasi, Ghana. His latest position is Director of operations for PROMITHIAN GLOBAL VENTURES, INC. in Canada / Ghana.<br/>
 He has over 26 years mining engineering experience obtained in mine survey, short and long term mine planning and mining projects in the mining industry. He holds Mine Managers certificate of competence from Minerals Commission in Ghana. 
@@ -9,8 +9,9 @@ He has worked in various mines and countries across the globe, notably among the
 <br/><br/>
 Dr Opoku is a registered member of the Southern African Institute of Mining and Metallurgy, and a member of the Australian Institute of Mining and Metallurgy (AusIMM). His research areas are open pit to underground transition, stochastic modelling and the use of simulated models in mine planning, uncertainties in mine planning and mine closure and rehabilitation.
 
-###  Experience
-## Director of Operations- PROMITHIAN GLOBAL VENTURES, INC     08/2021 – TO DATE 
+##  Experience
+
+### Director of Operations- PROMITHIAN GLOBAL VENTURES, INC     08/2021 – TO DATE 
 
 
 <!---
